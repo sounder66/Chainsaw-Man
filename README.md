@@ -17,3 +17,6 @@
 [第11集](https://player.hw8.lol/player?url=https://api.heimuer.app/play/c99691970e7b4129870e84fbaa2faa42.m3u8)
 [第12集](https://player.hw8.lol/player?url=https://api.heimuer.app/play/7a1b12aca94f455ea26ad2d254c6e5f9.m3u8)
 
+TG动漫频道电锯人在线看：https://t.me/yingzidongman/36
+永久发布页：https://mitakaasa123.github.io/
+
